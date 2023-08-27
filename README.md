@@ -17,8 +17,10 @@ https://drive.google.com/drive/folders/1VrjqvlVvoGICM4I8OYGMFRiJOuknnz4J?usp=dri
 
 Contacto:
 Para obtener más información sobre el SGTP, comuníquese con los desarrolladores a través del siguiente correo electrónico:
-aleja13258@gmail.com    
+aleja13258@gmail.com   
+
 ValentinaSalgadoBlandon16@gmail.com
+
 msossaanovaa@gmail.com
 
 Agradecimientos:
