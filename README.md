@@ -33,6 +33,7 @@ Para obtener más información sobre el SGTP, comuníquese con los desarrollador
 * aleja13258@gmail.com
 * ValentinaSalgadoBlandon16@gmail.com
 * msossaanovaa@gmail.com
+* Jorgeblanquicett@gmail.com
 
 ## Agradecimientos
 
